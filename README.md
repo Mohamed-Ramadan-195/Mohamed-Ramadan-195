@@ -1,12 +1,12 @@
 [![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)](http://ww25.rishavchanda.io/?subid1=20240123-0535-5617-82bb-f44c41fac506)
-<h1 align="center">Hi 👋, I'm Mohamed Ramadan Abdallah</h1>
-<h3 align="center">An android developer from Egypt</h3>
+<h1 align="center">Hi 👋, I'm Mohamed Ramadan</h1>
+<h3 align="center">Android Developer</h3>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mohamed-ramadan-195&label=Profile%20views&color=0e75b6&style=flat" alt="mohamed-ramadan-195" /> </p>
 
 
-- 💬 Ask me about **Android**
+- 💬 Ask me about **Android** 
 
-- 📫 How to reach me **mohamed.ramadan19502@gmail.com**
+- 📫 How to reach me **mohamed.ramadan19502@gmail.com** **+20 101 433 3429**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
